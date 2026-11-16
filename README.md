@@ -36,7 +36,7 @@ I'm looking for a **Software Developer Internship** where I can contribute to me
 
 ## 📫 Connect With Me
 
-- **Email:** your.email@example.com
+- **Email:** lleshikelvi18@gmail.com
 - **LinkedIn:** https://www.linkedin.com/in/kelvilleshi/
 - **GitHub:** https://github.com/kelvilleshi
 
